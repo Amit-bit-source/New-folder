@@ -1,3 +1,3 @@
 # New-folder
 just beginning 
-We are friends and happy friendship day to u all.
+We are friends and happy friendship day to u all all all
