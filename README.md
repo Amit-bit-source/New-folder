@@ -1,3 +1,6 @@
 # New-folder
-just beginning 
-happy friendship day all all all.
+Just beginning 
+Happy friendship day to all all all.
+
+
+Modified by Amit. so, dont mind....................
